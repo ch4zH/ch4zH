@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ch4zH
+- 👀 I’m interested in Web3, Non-Fungible Tokens and Cryptpocurrencies
+- 🌱 I’m currently learning the basics of coding
+- 📫 You can reach me at ceph@tutanota.com
